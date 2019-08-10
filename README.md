@@ -1,2 +1,3 @@
-# gan5
+KENA TIPU😂😂😂😂
 Jangan bacot ngentot
+MAAPIN GW TOD
