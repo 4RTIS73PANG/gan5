@@ -1,7 +1,7 @@
 SADAP WHATSAPP
 
 $ deketin korban
-$ iming iming biardia kasih hp
+$ iming iming biar dia kasih hp
 $ cepet cepet buka wa korban
 $ kalo cw kasih korban air apa ge
 Biar ga curiga😂
@@ -12,5 +12,4 @@ Lu buka wa korban !!!!
 DOWN 😂😂😂😂😂
 
 KENA TIPU😂😂
-Jangan bacot ngentot
-MAAPIN GW TOD
+GA SAVE WA GW LUMPUH,😅😂
