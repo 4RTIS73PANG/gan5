@@ -1,7 +1,7 @@
 SADAP WHATSAPP
 
 $ deketin korban
-$ iming iming biar dia kasih hp
+$ iming  iming biar dia kasih hp
 $ cepet cepet buka wa korban
 $ kalo cw kasih korban air apa ge
 Biar ga curiga😂
