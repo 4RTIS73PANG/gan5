@@ -1,7 +1,7 @@
 SADAP WHATSAPP
 
 $ deketin korban
-$ ngobrol sama korbab buar 
+$ ngobrol sama korban biar 
 kasih hp
 $ cepet cepet buka wa korban
 $ kalo cw kasih korban air apa ge
