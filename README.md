@@ -8,8 +8,8 @@ $ kalo cowo kasih roko pasti nurut
 
 Nah akhir langkah lu apain terserah
 Lu buka wa korban !!!!
-DOWN 😂😂😂😂😂😂😂
+DOWN 😂😂😂😂😂
 
-KENA TIPU😂😂😂😂
+KENA TIPU😂😂
 Jangan bacot ngentot
 MAAPIN GW TOD
