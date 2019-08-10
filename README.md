@@ -1,4 +1,5 @@
 SADAP WHATSAPP 
+
 $ deketin korban
 $ iming iming biar dia kasih hp
 $ setelah kasih hp 
